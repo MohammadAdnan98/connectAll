@@ -1,3 +1,3 @@
 # connectAll
-this project is just you will connect with anyone of your intrested
+this project is just you will connect with anyone of your <be> interested
 filed.
